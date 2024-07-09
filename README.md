@@ -1,0 +1,1 @@
+# 4SSIP_GalPowSpec
